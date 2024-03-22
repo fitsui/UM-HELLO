@@ -5,6 +5,6 @@
 <!--
 **fitsui/fitsui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-![Muu Kusunoki Mu Kusunoki GIF - Muu kusunoki Mu kusunoki Milgram - Ανακαλύψτε και κοινοποιήστε GIF](https://github.com/fitsui/fitsui/assets/140371348/1335fcd2-de4a-4297-a9ee-423076461383)
+![](https://ru.pinterest.com/pin/1033224339501371435/)
 
 
